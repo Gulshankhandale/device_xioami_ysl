@@ -21,4 +21,4 @@
 
 ## Device Picture
 
-![Xiaomi Redmi S2](https://fdn2.gsmarena.com/vv/pics/xiaomi/xiaomi-redmi-s2-5.jpg "Xiaomi Redmi S2")
+![Xiaomi Redmi S2](https://i.gadgets360cdn.com/products/large/1528369557_635_xiaomi_redmi_y2.jpg "Xiaomi Redmi S2")
